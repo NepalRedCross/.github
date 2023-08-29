@@ -4,6 +4,6 @@
 
 :thumbsup: Facebook: [Nepal Red Cross Society](https://facebook.com/nepalredcross)
 
-:bird: Twitter: [@NepalRedCross](https://twitter.com/NepalRedCross)
+&nbsp;&#120143;&nbsp; X: [@NepalRedCross](https://x.com/NepalRedCross)
 
 :tv: YouTube: [@redcrossnepal](https://youtube.com/@redcrossnepal)
